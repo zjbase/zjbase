@@ -1,1 +1,1 @@
-if(wantme) callqq('733905')
+contact@me callqq('733905')
